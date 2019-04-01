@@ -5,7 +5,7 @@ ini source code yang telah dipelajari(awal)
 
 ~<:<><><><><><><><><><><><><><><><><><><><><><><><><><><>:>~
 
-Salam dari 1705112020
+MJJ KK Salam dari 1705112020
 MASIH mendalami dunia pemrograman
 @milalaraey  © 2019             WARNING!!!
 ~ Boleh di Copy-Paste
